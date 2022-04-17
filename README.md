@@ -1,1 +1,0 @@
-# checkscamer.cf
